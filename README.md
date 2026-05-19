@@ -76,5 +76,5 @@ https://www.instagram.com/p/DYgmTITGk0C/?igsh=MTFzYm15cW5va280Yw==
 ## Author
 
 Krishna Dubey
-MCV Integrative Student, AKTU University
+MCA Integrative Student, AKTU University
 
